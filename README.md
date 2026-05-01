@@ -9,4 +9,5 @@ So yeah, I have a moral imperative to use the technology. I absolutely have to. 
 I wonder how intense the spiral would be. There’s nothing more toxic to democracy. We don’t know the full extent yet.
 
 # Whose John Merril
-Did he work for the hertiage foundations action arm in 2020?
+Did he work for the hertiage foundations action arm in 2020? 
+https://en.wikipedia.org/wiki/John_Merrill_(American_politician)
